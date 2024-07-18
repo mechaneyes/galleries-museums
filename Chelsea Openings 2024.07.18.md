@@ -1,4 +1,4 @@
-![[Pastedimage20240718105219.png]]
+![](Pastedimage20240718105219.png)
 
 ## Aaron Krach, Anthony Goicolea, Antonio Pulgarín, Boris Torres, Charles Wilkin, Florencia Alvarado, Guanyu Xu, John Cassidy Smith, John O'Reilly, Jonah Samson, Justine Kurland, Kelli Connell/Natalie Krick, Ken Graves, Lovie Olivia, Michael Young
 ### _Sharp Cuts: Queer Collage_
@@ -13,7 +13,7 @@ https://clampart.com/
 ---
 
 
-![[Pastedimage20240718110130.png]]
+![](Pastedimage20240718110130.png)
 
 ## group show
 ### _Being Human_
@@ -41,7 +41,7 @@ https://ceresgallery.org/
 ---
 
 
-![[Pastedimage20240718105614.png]]
+![](Pastedimage20240718105614.png)
 
 ## Katherine Auchterlonie
 ### _Kiss Garden_
@@ -55,7 +55,7 @@ https://www.rkgallery.com/
 ---
 
 
-![[Pastedimage20240718110531.png]]
+![](Pastedimage20240718110531.png)
 
 ## All Seeing Seneca, Mevlana Lipp, Edgar Serrano, Sydnie Jimenez, Rugiyatou Jallow, Chloe Chiasson
 ### _Twilight/Prelude_
@@ -70,7 +70,7 @@ https://www.albertzbenda.com/
 ---
 
 
-![[Pastedimage20240718110913.png]]
+![](Pastedimage20240718110913.png)
 
 ## group show
 ### _Summer City Idyll_
@@ -95,7 +95,7 @@ https://www.annazorinagallery.com/exhibitions
 ---
 
 
-![[Pastedimage20240718105355.png]]
+![](Pastedimage20240718105355.png)
 
 ## Ray Ciarrocchi
 ### _August Moonrise_
